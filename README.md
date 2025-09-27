@@ -1,5 +1,5 @@
-# 💫 Hi 👋, I'm Brooke Holland 
-**A passionate Data Scientist 
+# 💫 Hi 👋, I'm Brooke Holland
+**A passionate Data Scientist** 
 
 Email Me 👉 ✉️ **brooke.b.holland@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
